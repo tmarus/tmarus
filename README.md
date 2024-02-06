@@ -7,7 +7,6 @@
 
 🧠 I'm currently learning python
 
-⚡️ Funny fact, I don't like tomatoes
 
 
 ## Contact with me 🤴
