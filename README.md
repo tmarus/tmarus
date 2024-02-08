@@ -2,16 +2,16 @@
 
 
 
-## About me
+## About me 💙
 👩‍💻 I'm currently working on thv2.fun
 
 🧠 I'm currently learning python
 
 
 
-## Contact with me 🤴
+## Contact with me 💙
 
-Mail - admin@thv2.fun
+📩 Mail - admin@thv2.fun
 
-Discord - thishelper
+📩 Discord - thishelper
 
